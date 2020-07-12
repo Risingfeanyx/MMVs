@@ -20,5 +20,4 @@ Pink Floyd
 The Dark Side of the Moon
 Richard Wright, Roger Waters, David Gilmour, Nick Mason
 
-©Hirohiko Araki
-Viz Publishing
+©Fukuchi Tsubasa
