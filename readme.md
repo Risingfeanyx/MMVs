@@ -1,6 +1,6 @@
 A few manga music videos I've made. 
 
-Might make more ¯\_(ツ)_/¯
+Might make more "¯\_(ツ)_/¯"
 
 [Gyroundabout](https://youtu.be/FxdY0OGdBx0 "Gyroundabout")
 
