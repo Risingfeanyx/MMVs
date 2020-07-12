@@ -9,6 +9,10 @@ Yes
 Roundabout
 Steve Howe, Jon Anderson
 
+©Hirohiko Araki
+Viz Publishing
+
+
 [Saike Mata Shite mo x Dark side of the moon](https://youtu.be/61nG8p8SgbI "Saike Mata Shite mo x Dark side of the moon")
 
 ©Speak To Me/Breathe (Breathe In The Air)
@@ -16,3 +20,5 @@ Pink Floyd
 The Dark Side of the Moon
 Richard Wright, Roger Waters, David Gilmour, Nick Mason
 
+©Hirohiko Araki
+Viz Publishing
